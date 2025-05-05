@@ -1,5 +1,5 @@
 # ♑ About Me:
-I'm a 19 years old 1st year BSIT student at Saint Columban College. <br>Studying, Coding, Dancing, and Music is life.
+I'm a 19 years old 1st year BSIT student at Saint Columban College. <br> My music will tell you more about me than I will.
 
 
 ## 🌐 Socials:
